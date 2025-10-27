@@ -1,1 +1,1 @@
-basahin mo
+basahin mo ako 
